@@ -1,1 +1,0 @@
-# ebac_shoes
